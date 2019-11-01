@@ -1,0 +1,2 @@
+# GQ
+A rookie（XD）
